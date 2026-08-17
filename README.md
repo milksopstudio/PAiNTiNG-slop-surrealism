@@ -1,2 +1,2 @@
 # PAiNTiNGS-slop-surrealism
-Slop Surrealism Painting Gallery
+Milksop Studio Slop Surrealism Painting Gallery
